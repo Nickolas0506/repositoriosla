@@ -1,3 +1,0 @@
-# wjfwfwf
-
-vai cagar
